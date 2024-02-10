@@ -12,4 +12,4 @@ KEY HIGHLIGHTS :
 
 PDF LINK : https://drive.google.com/file/d/1w3GfPc_6GOSI7JdRKp8BAOP47w9XJbJS/view?usp=sharing
 
-EXCEL LINK : https://in.docworkspace.com/d/sIMad0Kwv6MKErgY
+EXCEL LINK : https://docs.google.com/spreadsheets/d/1nR6YNekXfzanhxtmMbb7iecE948RwrFb/edit#gid=1989375269
